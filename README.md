@@ -20,3 +20,10 @@ It destroys your sex life...!
 It messed your objection to women, and it, my man, is disgusting...!
 And it ain't healthy to your mental & physical...!
 ```
+
+### Code #2: DON'T SPEND MONEY ON THINGS YOU'RE SHAMED TO JOURNAL...!
+
+```
+Man, those things are NOT worth it, you know it damn well...!
+And it costs you, much, not just money...!
+```
